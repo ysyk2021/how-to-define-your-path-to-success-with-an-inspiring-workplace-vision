@@ -1,5 +1,3 @@
-Importance of Incorporating Your Workplace Vision into Company Culture and Practices
-=======================================================================================================================================================================
 
 Defining a workplace vision is an essential first step towards achieving success. However, it is equally important to ensure that the vision is integrated into the company culture and practices. In this chapter, we will explore the significance of incorporating your workplace vision into company culture and practices.
 

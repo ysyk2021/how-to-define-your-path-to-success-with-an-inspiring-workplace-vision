@@ -1,5 +1,3 @@
-Techniques for Creating a Clear and Compelling Vision Statement that Aligns with Your Goals and Values
-=========================================
 
 Defining a clear and compelling workplace vision is the foundation for success. Here are some techniques for creating a vision statement that aligns with your goals and values:
 

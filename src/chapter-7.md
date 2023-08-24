@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Achieving Your Workplace Vision
-==================================================================
 
 Achieving your workplace vision can be challenging, as there are often obstacles that you will encounter along the way. These obstacles may include resistance from others, lack of resources or support, fear of failure, or unexpected setbacks. However, with the right strategies, these obstacles can be overcome. This chapter will provide strategies for overcoming these obstacles.
 

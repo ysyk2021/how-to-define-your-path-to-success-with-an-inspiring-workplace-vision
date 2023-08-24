@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Power of a Workplace Vision
-========================================================
 
 Understanding the power of a workplace vision is essential in defining your path to success. This chapter discusses the definition of a workplace vision and the benefits of having an inspiring workplace vision for individuals and organizations.
 

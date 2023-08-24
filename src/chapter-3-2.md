@@ -1,5 +1,3 @@
-Strategies for Setting SMART Goals, Defining Values, and Assessing Strengths and Weaknesses
-========================================================================================================================================================
 
 An inspiring workplace vision begins with identifying both personal and professional goals. In this chapter, we will explore strategies for setting SMART goals, defining values, and assessing strengths and weaknesses.
 

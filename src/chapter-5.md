@@ -1,5 +1,3 @@
-Chapter 5: Communicating Your Vision Effectively
-================================================
 
 Defining an inspiring workplace vision is only the first step towards achieving organizational success. It's equally important to communicate that vision effectively to employees, stakeholders, and customers.
 

@@ -1,5 +1,3 @@
-Chapter 6: Aligning Your Actions with Your Vision
-=================================================
 
 Once you have defined your workplace vision, it is important to align your actions with that vision to achieve success. This chapter discusses the importance of aligning your actions with your vision and strategies for prioritizing tasks, managing time, and delegating responsibilities.
 

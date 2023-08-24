@@ -1,5 +1,3 @@
-Importance of Aligning Your Actions with Your Vision
-=================================================
 
 Defining a clear and inspiring workplace vision is an important first step in achieving success. However, the real work comes in aligning your actions with that vision. Here are some reasons why aligning your actions with your vision is so crucial:
 

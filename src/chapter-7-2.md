@@ -1,5 +1,3 @@
-Overcoming Obstacles to Achieving Your Workplace Vision
-==================================================================
 
 Strategies for Overcoming These Obstacles
 -----------------------------------------

@@ -1,5 +1,3 @@
-Techniques for Integrating Your Vision into Decision-Making, Operations, and Governance
-==========================================================================================================================================================================
 
 Creating an inspiring workplace vision is only the first step towards achieving success. To realize your vision, it must be incorporated into the culture and practices of your organization. This chapter will explore strategies for integrating your workplace vision into decision-making, operations, and governance.
 

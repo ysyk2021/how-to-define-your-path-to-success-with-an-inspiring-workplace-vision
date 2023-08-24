@@ -1,5 +1,3 @@
-Chapter 8: Using Feedback and Evaluation to Measure Progress towards Your Workplace Vision
-==========================================================================================
 
 As you work towards achieving your workplace vision, it is important to track your progress and make adjustments along the way. One way to do this is by using feedback and evaluation to measure progress towards your workplace vision. This chapter will provide an overview of using feedback and evaluation to measure progress towards your workplace vision.
 

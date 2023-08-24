@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Creating an inspiring workplace vision is just the first step towards achieving lasting change within an organization. To ensure that the vision is successfully implemented, it's essential to have a clear roadmap and tracking progress along the way.
 

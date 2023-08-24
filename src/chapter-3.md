@@ -1,5 +1,3 @@
-Chapter 3: Identifying Your Personal and Professional Goals
-===========================================================
 
 Identifying your personal and professional goals is a crucial step towards defining your workplace vision. This chapter provides an overview of identifying personal and professional goals and strategies for setting SMART goals, defining values, and assessing strengths and weaknesses.
 

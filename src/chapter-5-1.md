@@ -1,5 +1,3 @@
-Overview of Communicating Your Vision Effectively
-================================================
 
 Defining a clear and inspiring workplace vision is an important first step in achieving success. However, it's equally important to communicate that vision effectively to others. Here is an overview of why effective communication is important for your workplace vision and how to do it successfully:
 

@@ -1,5 +1,3 @@
-Overview of Using Feedback and Evaluation to Measure Progress Towards Your Workplace Vision
-==========================================================================================
 
 Defining a clear and inspiring workplace vision is an important first step in achieving success. However, it's equally important to measure progress towards that vision over time. This can help you identify areas where you are making progress and areas where you may need to adjust your approach. Here is an overview of how to use feedback and evaluation to measure progress towards your workplace vision:
 

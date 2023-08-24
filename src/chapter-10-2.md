@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Once you have defined your workplace vision, the next step is to implement strategies that will help you achieve it. This chapter will focus on implementation strategies for lasting change, including tracking progress and celebrating successes.
 

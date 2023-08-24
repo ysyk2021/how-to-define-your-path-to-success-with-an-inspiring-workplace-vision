@@ -1,5 +1,3 @@
-Overview of Identifying Personal and Professional Goals
-====================================================================================================================
 
 Defining your path to success with an inspiring workplace vision starts with identifying personal and professional goals. To achieve a fulfilling and successful career, it is essential to have a clear understanding of what you want to accomplish in both your personal and professional life.
 

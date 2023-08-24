@@ -1,5 +1,3 @@
-Common Obstacles to Achieving Your Workplace Vision
-=======================================================================================================================
 
 Achieving your workplace vision is not always easy and straightforward. There will inevitably be obstacles that arise, but it's essential to overcome them to stay on track towards success. In this chapter, we will explore the common obstacles that organizations face when trying to achieve their workplace vision and provide strategies for overcoming them.
 

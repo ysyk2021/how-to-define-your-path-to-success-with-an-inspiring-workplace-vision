@@ -1,5 +1,3 @@
-Chapter 9: Incorporating Your Workplace Vision into Company Culture and Practices
-=================================================================================
 
 Creating an inspiring workplace vision is a vital first step towards achieving organizational success. However, it's equally important to incorporate that vision into the company culture and practices to ensure that it guides decision-making, operations, and governance.
 

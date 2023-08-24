@@ -1,5 +1,3 @@
-Strategies for Soliciting Feedback, Monitoring Progress, and Adjusting Strategies Accordingly
-=========================================================================================================================================================================================
 
 Defining your workplace vision is just the first step. To achieve success, you must regularly monitor progress towards your vision and adjust strategies accordingly. One critical aspect of this evaluation is soliciting feedback from stakeholders and employees to ensure your efforts are on track. In this chapter, we will explore strategies for soliciting feedback, monitoring progress, and adjusting strategies in line with your workplace vision.
 
