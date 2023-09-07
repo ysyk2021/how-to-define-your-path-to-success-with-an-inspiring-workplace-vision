@@ -8,3 +8,7 @@ This book, "How to Define Your Path to Success with an Inspiring Workplace Visio
 Whether you are an aspiring entrepreneur or an established business leader, this book will provide valuable insights and tools for defining your path to success in the workplace. By developing a strong workplace vision and staying committed to your goals, you can achieve success and fulfillment in all aspects of your professional life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
