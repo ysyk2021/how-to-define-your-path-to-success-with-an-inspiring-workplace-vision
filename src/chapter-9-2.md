@@ -1,5 +1,4 @@
-Chapter 17: Techniques for Integrating Your Vision into Decision-Making, Operations, and Governance
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Integrating your workplace vision into decision-making, operations, and governance is vital to ensure that your vision becomes a reality. This chapter explores techniques and strategies for aligning your vision with these essential aspects of your organization.
 

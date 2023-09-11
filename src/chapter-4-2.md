@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Creating a Clear and Compelling Vision Statement that Aligns with Your Goals and Values
-=================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a clear and compelling vision statement is crucial for defining your path to success with an inspiring workplace vision. This chapter explores techniques that will help you craft a vision statement that aligns with your goals and values, guiding you towards achieving your desired outcomes.
 

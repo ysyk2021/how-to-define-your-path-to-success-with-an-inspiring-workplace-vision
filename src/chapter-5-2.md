@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Using Storytelling, Metaphors, and Analogies to Engage Others and Gain Support
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Storytelling, metaphors, and analogies are powerful tools that can help individuals and organizations effectively communicate their workplace vision and gain support from others. In this chapter, we will explore strategies for utilizing these techniques to engage others and inspire them to rally behind your vision.
 

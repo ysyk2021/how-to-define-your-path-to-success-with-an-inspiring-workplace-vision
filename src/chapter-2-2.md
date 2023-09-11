@@ -1,5 +1,4 @@
-Chapter 8: Benefits of Having an Inspiring Workplace Vision for Individuals and Organizations
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Having an inspiring workplace vision can bring numerous benefits to both individuals and organizations. In this chapter, we will explore the advantages that a compelling vision can provide, driving personal growth and organizational success.
 

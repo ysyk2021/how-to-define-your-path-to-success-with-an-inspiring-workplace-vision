@@ -1,5 +1,4 @@
-Chapter 13: Overview of Identifying Personal and Professional Goals
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying personal and professional goals is a fundamental step in defining your path to success with an inspiring workplace vision. In this chapter, we will provide an overview of the key elements and strategies involved in identifying goals that align with your aspirations and drive meaningful growth.
 

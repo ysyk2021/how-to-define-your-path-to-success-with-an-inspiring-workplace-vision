@@ -1,5 +1,4 @@
-Chapter 18: Strategies for Soliciting Feedback, Monitoring Progress, and Adjusting Strategies Accordingly
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Soliciting feedback, monitoring progress, and adjusting strategies accordingly are key components of successfully implementing an inspiring workplace vision. This chapter explores effective strategies for actively engaging with stakeholders, tracking progress, and making necessary adjustments to ensure your vision's success.
 

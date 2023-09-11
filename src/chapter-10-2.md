@@ -1,5 +1,4 @@
-Chapter 14: Tracking Progress and Celebrating Successes
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Tracking your progress and celebrating successes is an essential component of defining your path to success with an inspiring workplace vision. In this chapter, we will explore strategies and approaches to effectively monitor your progress, stay motivated, and celebrate achievements along the way.
 

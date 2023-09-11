@@ -1,5 +1,4 @@
-Chapter 16: Importance of Incorporating Your Workplace Vision into Company Culture and Practices
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating your workplace vision into company culture and practices is essential for creating an inspiring and successful work environment. This chapter will explore the significance of aligning your vision with the culture and practices of your organization, and the benefits it brings to both individuals and the company as a whole.
 

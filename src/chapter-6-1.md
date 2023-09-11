@@ -1,5 +1,4 @@
-Chapter 4: Importance of Aligning Your Actions with Your Vision
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to achieve success and realize your workplace vision, it is crucial to align your actions with your vision. This chapter delves into the significance of aligning your actions with your vision and demonstrates how this alignment can propel you towards achieving your goals.
 

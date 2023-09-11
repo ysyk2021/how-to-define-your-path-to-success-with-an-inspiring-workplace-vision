@@ -1,5 +1,4 @@
-Chapter 15: Creating a Roadmap for Defining Your Path to Success with an Inspiring Workplace Vision
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a roadmap is a crucial step in defining your path to success with an inspiring workplace vision. In this chapter, we will explore the key elements and strategies involved in building a roadmap that outlines the necessary steps towards achieving your goals.
 

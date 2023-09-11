@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Overcoming Obstacles
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of defining your path to success with an inspiring workplace vision, you are likely to encounter various obstacles along the way. These challenges can hinder progress and impact your ability to realize your vision. In this chapter, we will explore strategies for overcoming these obstacles and maintaining momentum towards your goals.
 

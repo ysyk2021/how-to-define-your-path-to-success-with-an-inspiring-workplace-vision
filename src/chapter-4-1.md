@@ -1,5 +1,4 @@
-Chapter 3: Importance of Defining Your Workplace Vision
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In any organization, having a clear workplace vision is crucial for success. A workplace vision serves as a guiding light, providing direction and purpose for the organization and its employees. This chapter explores the significance of defining a workplace vision and how it can positively impact both individuals and the organization as a whole.
 

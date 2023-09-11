@@ -1,5 +1,4 @@
-Chapter 9: Common Obstacles to Achieving Your Workplace Vision
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 While defining an inspiring workplace vision is essential, it is equally important to be aware of the obstacles that may hinder its realization. In this chapter, we will explore some common challenges individuals and organizations may face on their path to achieving their workplace vision.
 

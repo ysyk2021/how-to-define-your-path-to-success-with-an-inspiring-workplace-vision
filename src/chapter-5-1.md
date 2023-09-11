@@ -1,5 +1,4 @@
-Chapter 12: Overview of Communicating Your Vision Effectively
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effectively communicating your workplace vision is essential for inspiring and mobilizing others towards a shared goal. In this chapter, we will provide an overview of the key elements and strategies involved in effectively communicating your vision to drive success.
 
